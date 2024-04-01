@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sourav5harma
+- 👋 Hi, I’m @Sourav Sharma
 - 👀 I’m interested in coding,Listening Poadcasts.
 - 🌱 I’m currently learning Web Technologies
 - 📫 You v=can reach me on Linkedin https://www.linkedin.com/in/sourav-sharma-981041228/
